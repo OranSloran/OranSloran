@@ -1,7 +1,7 @@
 ![0acd97426da654f3c97e9e7437ac90bf](https://github.com/user-attachments/assets/4910d1a3-9b82-40d8-8b29-7a3d73fa4446)
 
 
-<p align="center"> # G'day, I'm 𝙾𝚛𝚊𝚗! (*``𝙷𝚎/𝚃𝚑𝚎𝚢``*)
+<p align="center"> G'day, I'm 𝙾𝚛𝚊𝚗! (He/Them)
 <p align="center"> ,
 <p align="center"> Pony Town Interactions w/ Me! (Oh wow! Me?)
 <p align="center"> `
